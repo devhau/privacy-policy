@@ -1,4 +1,4 @@
-***[VPN Pro - Free Ultimate VPN](https://devhau.github.io/privacy-policy/vpn-pro-free-ultimate-vpn)***
+[VPN Pro - Free Ultimate VPN](/privacy-policy/vpn-pro-free-ultimate-vpn)
 
 **Privacy Policy**
 
