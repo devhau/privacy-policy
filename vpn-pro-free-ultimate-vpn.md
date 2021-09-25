@@ -1,3 +1,5 @@
+***VPN Pro - Free Ultimate VPN***
+
 **Privacy Policy**
 
 DevHau built the VPN Pro - Free Ultimate VPN app as a Free app. This SERVICE is provided by DevHau at no cost and is intended for use as is.
